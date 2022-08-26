@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VertrauterDavid
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning to jaxx my self
+- 📫 How to reach me -> no
